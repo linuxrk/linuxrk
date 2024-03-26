@@ -1,0 +1,4 @@
+- 👋 Hi, I’m rohit kumar
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning bcom
+- 💞️ I’m looking to collaborate on goole projects
